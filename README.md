@@ -34,7 +34,6 @@ Okay, so nothing's completely free – you do need to jump through a few hoops. 
 
 First things first – you need to get to the sign-up page. 👉 [Click here to start your account setup and unlock your 100 USDT welcome bonus](https://www.okx.com/join/47044926)
 
-![OKX registration button with clear call-to-action](image/83570882788039.webp)
 
 **Step 2: Fill in Your Details**
 
